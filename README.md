@@ -1,1 +1,1 @@
-A story I had in mind to put together. I'd like to turn it into a game, with visual novel cutscenes.
+A story I had in mind to put together. I'd like to turn it into a game, with visual novel cutscenes. Unfinished, as is, but getting there.
